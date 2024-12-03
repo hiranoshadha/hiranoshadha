@@ -15,7 +15,7 @@
 
 - 🌱 I’m currently learning **Java**
 
-- 📫 How to reach me **hhof0605@gmail.com**
+- 📫 How to reach me **hiranoshadha777@gmail.com**
 
 - ⚡ Fun fact **"Call me as Hiran"**
   
